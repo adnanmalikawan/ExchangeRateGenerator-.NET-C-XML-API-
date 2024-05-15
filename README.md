@@ -45,4 +45,4 @@ Acknowledgements:
 
 
 
-Enjoy your experience! 😊
+Enjoy your experience!
